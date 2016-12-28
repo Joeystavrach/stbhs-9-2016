@@ -6,8 +6,8 @@
 ## _**Flavors**_
 - original (black seeds)
 - zaata (mediterranean spice)
-- kalamata olive (black seeds + crushed kalamata olives )
-- spicy olive (My homemade spicy marinated green olives crushed )
+- kalamata olive (black seeds + kalamata olives)
+- spicy olive (homemade spicy marinated green olives)
 - Stay tuned for more flavors.....
 
 ## _**Prices**_
