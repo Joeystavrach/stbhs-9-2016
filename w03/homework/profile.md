@@ -1,6 +1,6 @@
 #                My Twist
 
-###### Hi, my name is joey stavrach. I am 14 years old, I sell kosher string cheese!! I have a bunch of different flavors! contact me at 917-200-5562 for more info. or if you want to buy!! Also follow my instagram page!!
+###### kosher string cheese! chalav yisrael! dipped utensils! Lots of flavors! Contact me at 917-200-5562 for more information or if you want to buy (located in midwood, brooklyn)! Follow us on  instagram!
 [Mytwist_by_joey](https://www.instagram.com/mytwist_by_joey/)
 
 ## _**Flavors**_
