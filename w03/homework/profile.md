@@ -1,7 +1,7 @@
 #                My Twist
 
-###### kosher string cheese! chalav yisrael! dipped utensils! Lots of flavors! Contact me at 917-200-5562 for more information or if you want to buy (located in midwood, brooklyn)! Follow us on  instagram!
-[Mytwist_by_joey](https://www.instagram.com/mytwist_by_joey/)
+###### kosher string cheese! chalav yisrael! dipped utensils! Lots of flavors! Contact me at 917-200-5562 for more information or if you want to buy (located in midwood, brooklyn)!
+[Check me out on instagram @mytwist_by_joey](https://www.instagram.com/mytwist_by_joey/)
 
 ## _**Flavors**_
 - original (black seeds)
